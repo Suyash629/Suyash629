@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-### Info Update in progress (This is old info)
-
 ## Hi 👋 I am Suyash Sharma
 
 Currently playing with:
